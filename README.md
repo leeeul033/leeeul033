@@ -1,5 +1,10 @@
 ### Hi there 👋
-
+I love football
+sonny is my favorite player
+he hot 3 scores last game in England premier league
+I'm happy to hear that
+Let's support him!
+Good night
 <!--
 **leeeul033/leeeul033** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
